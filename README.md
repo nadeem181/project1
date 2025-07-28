@@ -1,1 +1,1 @@
-# project1
+i'm mohammad nadeem persuing biomedical engineering at bharath university and im new to this, trying to learn new things to add up for my resume so that i can be able to qualify for jobs that im capable of 
